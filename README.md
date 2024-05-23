@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PluhMaster
 - 👀 I’m interested in Sports
-- 🌱 I’m currently learning Coding
+- 🌱 I’m currently learning Codeing
 - 💞️ I’m looking to collaborate on hacks for blooket
 - 📫 How to reach me Trysten.Esbrandt30@valleyviewsd.org
 - 😄 Pronouns: his/him
